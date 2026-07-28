@@ -1,0 +1,1 @@
+# limbus-company-Custom-translation-tool
